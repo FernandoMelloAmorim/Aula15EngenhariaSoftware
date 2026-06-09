@@ -5,3 +5,4 @@ O curso estava deverás muito bacana.
 
 
 O melhor livro é aquele que nos envolve na história!
+Nossa próxima aula será na quarta-feira dia 10 de Junho de 2026.
