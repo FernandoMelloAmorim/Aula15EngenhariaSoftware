@@ -1,5 +1,4 @@
 # Aula15EngenhariaSoftware
 Exercício da aula 15 do módulo de Engenharia de Software na Unifel.
 Desempenhamos essa tarefa dia 08 de Junho de 2026.
-
-Aula muito boa, que coisa fantástica!
+O curso estava deverás muito bacana.
